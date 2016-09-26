@@ -2,4 +2,4 @@
 
 This  repository contains my assignments 
 
-CV 
+[CV](https://github.com/Guusz/assignments/blob/master/CV)
