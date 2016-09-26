@@ -40,8 +40,8 @@ I did my study abroad in Berlin and started with taking an intensive German cour
 A course of 24 days with 5 hours a day German course and every week several cultural classes. 
 
 ##ADDITIONAL ACTIVITIES
-**Active member at Asset| Economics**, a study association linked to the economic faculty of Tilburg University. I was being a part of different committees and gained experience with planning, organising, acquisition, writing, meetings and leading meetings. 
-	*9/2016 - Present*	Secretary at the ‘Economics Battle’ committee. 
+**Active member at Asset| Economics**, a study association linked to the economic faculty of Tilburg University. I was being a part of different committees and gained experience with planning, organising, acquisition, writing, meetings and leading meetings.   
+	*9/2016 - Present*	Secretary at the ‘Economics Battle’ committee.   
 	*8/2015 – 11/2015* 	Chairman at the ‘Blog’ committee.		   
 	*5/2015 - 10/2015* 	External Affairs Officer at the ‘Economic Diner’ committee.   
 	*3/2015 - 8/2015*	Writer at the ‘Blog’ committee.   
