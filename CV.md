@@ -1,9 +1,9 @@
 # CURRICULUM VITAE: 
 **Name:**  			A.B. (Guus) van de Wakker  
-**Birth:**			09-11-1992  
-**Nationality:**		Dutch 
-**Address:**		Noordwijkstraat 21, 5045 ME Tilburg 
-**Email:** 			Guuswakker@gmail.com 
+**Birth:**			09-11-1992   
+**Nationality:**		Dutch  
+**Address:**		Noordwijkstraat 21, 5045 ME Tilburg  
+**Email:** 			Guuswakker@gmail.com  
 **Telephone number:** 	0623501441 
 ## PROFILE 
 Searching for a challenging traineeship in the beginning of 2017. I am looking for an traineeship to gain more work experience and to learn about the financial world. An traineeship could help me to show my skills as a responsible, independent and ambitious person. The Master that I am now doing is the Master Economics with the track: Money, Banking and Financial Markets. I am looking for a traineeship that is the same field of interest. Furthermore I am a social and motivated person with a healthy optimism.
