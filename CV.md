@@ -26,7 +26,7 @@ Main courses: Macro, Micro, Math, Finance, Accounting, Strategy, Statistics, Ban
 Main courses: Dutch, English, German, Maths B, Physics, Chemistry, Informatics.
 
 ##INTERNSHIP
-	*1/2016 – 6/2016*	Intern Business Management Corporate Banking, NIBC 
+	*1/2016 – 6/2016*	**Intern Business Management Corporate Banking**, NIBC 
 I did an internship at the Investment Bank NIBC and was supporting the Business Management team. The Business Management team is supporting the Management and the Commercial teams of the Corporate side of the Bank. As part of the team I was actively involved in the day-to-day operations and quickly gain insight in a broad range of activities. I learned a lot about the operational management of a bank organization and was in close cooperation with the commercial Bus and the departments: Finance, IT, Risk and HR. 
 My main activities where: Preparing financial and marketing presentations for the Management of the Corporate Bank, Conducting sector/market analysis, Performing database analyses (prospect selection, client data, pipeline conversion), Client feedback (Net Promotor Score survey and interview analysis) and I was involved in several organizational improvements. 
 After a successful period as an Intern I got the possibility to proceed my activities for an extra month. But this time not as an Intern but as an External Worker.
@@ -41,10 +41,10 @@ A course of 24 days with 5 hours a day German course and every week several cult
 
 ##ADDITIONAL ACTIVITIES
 **Active member at Asset| Economics**, a study association linked to the economic faculty of Tilburg University. I was being a part of different committees and gained experience with planning, organising, acquisition, writing, meetings and leading meetings. 
-	*9/2016 - Present*	Secretary at the ‘Economics Battle’ committee.
-	*8/2015 – 11/2015* 	Chairman at the ‘Blog’ committee.		
-	*5/2015 - 10/2015* 	External Affairs Officer at the ‘Economic Diner’ committee. 
-	*3/2015 - 8/2015*	Writer at the ‘Blog’ committee. 
+	*9/2016 - Present*	Secretary at the ‘Economics Battle’ committee. 
+	*8/2015 – 11/2015* 	Chairman at the ‘Blog’ committee.		   
+	*5/2015 - 10/2015* 	External Affairs Officer at the ‘Economic Diner’ committee.   
+	*3/2015 - 8/2015*	Writer at the ‘Blog’ committee.   
 	*8/2013 - 5/2014*	External Affairs Officer at the ‘Case Day’ committee.
 
 	*8/2014 – Present* 	**TOP Mentor**, Tilburg University. 
